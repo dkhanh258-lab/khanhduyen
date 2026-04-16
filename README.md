@@ -1,2 +1,0 @@
-# khanhduyen
-My destiny
